@@ -1,1 +1,1 @@
-Migue's Portfolio
+Miguel's Portfolio
